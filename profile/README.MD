@@ -15,6 +15,6 @@ Você pode conferir aqui, todos os locais que a ADG Development já prestou serv
 
 Além desses acima tem muito mais serviços sendo feitos/em planejamento!
 - Deseja entrar em contato? Aqui está nossos meios de contato:
-> Discord: [ADG#1234](https://discord.com/users/717766639260532826)
+> Discord: [ADG Development](https://discord.gg/Ssu6yrhkMz)
 
 > E-mail: [canaladgcomercial@gmail.com](mailto:canaladgcomercial@gmail.com)
